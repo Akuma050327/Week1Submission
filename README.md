@@ -1,1 +1,1 @@
-# Week 1 Submission
+# Week 1 and 2 Submission
